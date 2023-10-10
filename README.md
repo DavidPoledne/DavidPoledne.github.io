@@ -1,4 +1,4 @@
 # David Poledne
 ## Emhasis
-**dsaj
-__jk__
+**dsaj**
+__Student třetího ročníku bakalářského oboru matematické modelování na matematicko fyzikální fakultě na univerzitě karlově.__
